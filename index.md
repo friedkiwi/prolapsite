@@ -1,5 +1,3 @@
-# About
-
 # Contact
 
 * Email: infected@analprolap.se
